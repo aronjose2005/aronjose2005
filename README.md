@@ -132,7 +132,7 @@ I specialize in:
 
 ## 🌱 Let’s Connect!
 
-- [GitHub](https://github.com/Aronjose001)
+- [GitHub](https://github.com/aronjose2005)
 - [LinkedIn](https://linkedin.com/in/aron-jose001)
 - [Email](mailto:aronjose@karunya.edu.in) 
 
